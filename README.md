@@ -9,10 +9,6 @@ Jaqueline Pena dos Santos Silva - 0030482211011
 
 Gabriel Caetano de Oliveira Moreira - 0030482211022
 
-Igor Zanetti Domotor - 0030482211042
-
-Bruno Aparecido de Moura - 0030482211012
-
 Ismael Barbosa da Silva - 0030482211030
 
 # <h1 align="center"> Resumo:
